@@ -1,4 +1,4 @@
-# Viacheslav Zhulchynskyi 🏝
+# Android developer 🏝
 
 ## About Me 🚀
 
